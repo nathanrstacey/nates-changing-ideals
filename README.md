@@ -12,7 +12,7 @@ At this time there is nothing capable of fully synergizing all of our probes. So
 
 An example of an entity providing significantly more synergized success is an organ. As in, DNA within every cell tells each cell its purpose. As in, more probe synergy would make us become cells to a larger organ.
 
-This theory is still in the works. I am not a philosopher by trade but have tens of thousands of hours researching the reasons for choices and utopian concepts. I would love opinions to help improve it 
+This theory is still in the works. I am not a philosopher by trade, concepts might be somewhat but not fully fleshed out. The general idea is there, we just want something bigger than us to take care of us. I would love opinions to help improve it 
 
 
 
