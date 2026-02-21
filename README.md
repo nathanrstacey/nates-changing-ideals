@@ -1,16 +1,18 @@
 # Nate's Changing Ideal
 ## Life’s only goal 
 
+### Key theory:
 Each of our actions revolve around finding something bigger than us to synergize all of our signals from our probes
 
-Some background:
-There are probes of many sizes that all are affected. By probes, I mean any detectable signal—internal or external—that exerts pressure on a system toward action, interpretation, or adaptation. This includes probes hitting us from all over this world, this universe, humans and animals, as well as the loudest which are in our body even down to atoms and smaller. There are many entities that try to synergize these probes. 
+### Some background:
+We think therefore we are broken. That is oversimplified but let me explain. Broken as in, we have not reached the above goal yet. Pain comes in forms that we choose (workouts, the fun everyday tasks) and forms we do not choose (abuse of all kinds, obnoxious chores.) This unchosen pain is really us feeling frustrated that the signals we are feeling are not synergizing together. That frustration is the core to what we are thinking.  As long as we continue to think for this reason, we are broken and have not met the above goal 
 
-We think therefore we are broken. That is oversimplified but let me explain. Broken as in, we have not reached the above goal yet. Pain comes in forms that we choose (chosen) and forms we do not choose (unchosen). A common form of unchosen pain is when signals don’t synergize to us. This unchosen pain makes us think, as long as we continue to think for this reason, we are broken. It is possible this is the only reason we think, more research needs to be looked at for this
+Probes give us these signals and we absorb an enormous amount of probe signals. By probes, I mean any detectable signal—internal or external—that exerts pressure on a system toward action, interpretation, or adaptation. This includes probes hitting us from all over this world, this universe, humans and animals, as well as the loudest which are in our body even down to atoms and smaller. 
 
-At this time there is nothing capable of fully synergizing all of our probes. Some entities will claim they can, we all have chosen entities to follow, but all fail. We know they fail because we think of unchosen pain. The more probe signals that an entity allows itself to listen to and mold itself to those signals, the better the chance that said entity can get us closer to the above goal. 
+There are many tribes (organizations, entities) that try to synergize these probes. Evolutionarily we are built to belong to a tribe and naturally believe that these tribe will be the key to meeting the above goal. We need them. At this time there is no tribe that is capable of fully synergizing all of our probes. Some tribes will claim they can, we all have chosen tribes to follow, but all fail. We know they fail because we still think therefore are broken. 
 
-An example of an entity providing significantly more synergized success is an organ. As in, DNA within every cell tells each cell its purpose. As in, more probe synergy would make us become cells to a larger organ.
+### Our bug to meet this goal
+We have a bug. That is our conscience (spirit, inner voice.) It is a bigot, it is racist, it "others" others. We are built to trust it but it cannot be trusted on its own. This bug is the source of most human-on-human unchosen pain. It creates the most powerful tribes giving those in the tribe the most signal synergizes. The conscience was built for an old era when we lived in communities of 50-150 that needed to do horrible acts to those outside of the tribe in order to protect those in the tribe. As long as we try to meet the above goal with all 10+ billion humans, we will always fail until we resolve the conscience issue 
 
 This theory is still in the works. I am not a philosopher by trade, concepts might be somewhat but not fully fleshed out. The general idea is there, we just want something bigger than us to take care of us. I would love opinions to help improve it 
 
